@@ -2,4 +2,4 @@
 
 
 
-![](https://gpvc.arturio.dev/ismailakca)![]
+![](https://gpvc.arturio.dev/ismailakca)
